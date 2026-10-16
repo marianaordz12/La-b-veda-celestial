@@ -1,1 +1,1 @@
-# La-b-veda-celestial
+# La-boveda-celestial
